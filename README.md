@@ -10,4 +10,4 @@ email adress: official.chimmken@gmail.com
 - and a psychological technique called F.A., pretty lame yes i know.
 - 🔥 About me:
 
-17 year old muslim guy, who used to be a former freelancer, currently looking back at it. and enhance my programming skills at designated professions.
+18 year old muslim guy, who used to be a former freelancer, currently looking back at it. and enhance my programming skills at designated professions.
