@@ -9,4 +9,4 @@
 - ⚡ Fun fact: i am sleep deprived at times, also depressed, i am more interested in philosophy, and psychology than programming, a bit inclined to it, but programming sure is fun at times! also i am also a calisthenics guy, you can maybe find me on instagram.
 - 🔥 About me (concisely):
 -    18 year old muslim guy, who used to be a former amatuer footballer. i am onto programming! but too dumb to process the complex stuff the coding world has to offer :/
--    i am mainly known as ch1mken0, i do art, probably gonna do commissions soon too, i own a server/community lol thats it tbh.
+-    i am mainly known as ch1mken0 or chimken(the chicken in the drawing) but my OC(the human) is called SH4DE or shade (whos literally me identically cuz am not that creative), i do art, probably gonna do commissions soon too, i own a server/community lol thats it tbh.
